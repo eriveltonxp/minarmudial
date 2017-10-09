@@ -1,0 +1,2 @@
+# minarmudial
+criptomoeda avançada
